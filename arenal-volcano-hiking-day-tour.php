@@ -1,1 +1,6 @@
-crear contenido para arenal-volcano-hiking-day-tour.php
+An opportunity to make your day awesome exploring the best of Arenal, a combination of Arenal Hanging Bridges, La Fortuna waterfall, and Arenal Volcano National Park is the best for those who want to see the highlights of this paradise, offering, at the same time, a full day hiking in the rainforest.
+The 250 hectares nature reserve offers tropical rain forest and a huge diversity of flora and fauna. Combined with 15 different bridges allowing visitors to explore deep in the forest and above the canopy. Umpredictable but common to see are the howler and spider monkeys, different species of birds, lizards, and more.
+Following an awesome day we will visit La Fortuna waterfall, be ready for swimming or simply enjoying the breathtaking scenery.
+Time for lunch, we will visit a local family who will be waiting for us with a delicious typical meal in an open air environment.
+Ready for our next destination, Arenal Volcano National Park will offer very interesting history that your guide will share with you, the path is easy to walk through and will take you to the best observation points at the base of the volcano, overlooking Arenal Volcano and Lake.
+An amazing day has brought a lot of culture, history, biodiversity, and exploration, we will take you back to your hotel for a relaxing evening with great memories of the day.
